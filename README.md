@@ -5,5 +5,5 @@ listen to my voice, you should hear me now . .
 
         🐑    clover ｡ oskar
       ﾐ turning 13 ︵ they/them ⊹ฺ taken ིྀ
-                   ria ♡ 
+             ria ♡  my beloved
     
