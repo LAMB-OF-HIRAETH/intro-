@@ -6,4 +6,4 @@ listen to my voice, you should hear me now . .
         🐑    clover ｡ oskar
       ﾐ turning 13 ︵ they/them ⊹ฺ taken ིྀ
              ria ♡  my beloved
-    
+[check straw ! ](https://silentlqmb.straw.page)
