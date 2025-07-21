@@ -1,9 +1,10 @@
-![image](https://github.com/user-attachments/assets/9a5e82c8-1257-4637-b939-c01f57ee466d)
+![image](https://github.com/user-attachments/assets/aae67fa5-06e6-4c09-b73d-c2c0ef1ec6a3)
+
       listen to the willow, listen to the sound,
       
 listen to my voice, you should hear me now . . 
 
-        🐑    clover ｡ oskar
-      ﾐ turning 13 ︵ they/them ⊹ฺ taken ིྀ
-             ria ♡  my beloved
+        🐑    brandon ｡ clover
+      ﾐ  13yo ︵ they/him ⊹ฺ single ིྀ
+      
 [check straw ! ](https://silentlqmb.straw.page)
