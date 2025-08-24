@@ -7,4 +7,4 @@ listen to my voice, you should hear me now . .
         🐑  maxx ｡ brandon ｡ clover
       ﾐ  13yo ︵ they/him ⊹ฺ single ིྀ
       
-[check straw ! ]((https://lamb-of-hiraeth.straw.page))
+[check straw ! ](https://lamb-of-hiraeth.straw.page))
