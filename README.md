@@ -5,6 +5,6 @@ listen to the willow, listen to the sound,
 listen to my voice, you should hear me now . . 
 
         🐑  maxx ｡ brandon ｡ clover
-      ﾐ  13yo ︵ they/him ⊹ฺ single ིྀ
+      ﾐ  13yo ︵ they/him ⊹ฺ taken ིྀ
       
 [check straw ! ](https://lamb-of-hiraeth.straw.page)
