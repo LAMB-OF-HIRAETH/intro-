@@ -1,10 +1,10 @@
-![image](https://github.com/user-attachments/assets/aae67fa5-06e6-4c09-b73d-c2c0ef1ec6a3)
+<img width="1139" height="740" alt="image" src="https://github.com/user-attachments/assets/0fa141a9-aaa1-4e6e-8f8d-b0516c358cdd" />
 
-listen to the willow, listen to the sound,
 
-listen to my voice, you should hear me now . . 
+“mayday, mayday! do you answer me? im feeling imcomplete.. in this world you made for me!”
 
-        🐑  sparrow ｡ pine ｡ clover
-      ﾐ  13yo ︵ they/him ⊹ฺ taken ིྀ
+        🐑  clover ｡ pinecone  
+      ﾐ  13yo ︵ they/them ⊹ฺ taken ིྀ
       
-[check straw ! ](https://lamb-of-hiraeth.straw.page)
+___________
+STRAWPAGE, RENTRY, PRNS AND ALL THAT OTHER STUFF IS UNDER CONSTRUCTION !
