@@ -3,7 +3,7 @@
 
 “mayday, mayday! do you answer me? im feeling imcomplete.. in this world you made for me!”
 
-        🐑  clover ｡ pinecone  
+        🐑  lucky ｡ clover  
       ﾐ  13yo ︵ they/them ⊹ฺ taken ིྀ
       
 ___________
